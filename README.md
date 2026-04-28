@@ -25,5 +25,5 @@ Remote B2B consulting engagements with EU, UK, and international clients in clou
 #### Get in touch
 
 - Email: marcosanzone76@gmail.com
-- LinkedIn: [add your LinkedIn URL here]
+- LinkedIn: www.linkedin.com/in/marco-sanzone-6790b932
 - Location: Italy 🇮🇹
